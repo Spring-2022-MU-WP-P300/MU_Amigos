@@ -1,2 +1,2 @@
 # MU_Amigos
-By Abdullah Nasif Chowdhury (193-115-012), and Tumpa Rani Dam (193-115-017)
+By Zaynab Begum	(193-115-001), and Ebrahim Ahmed Shaip (193-115-016)
